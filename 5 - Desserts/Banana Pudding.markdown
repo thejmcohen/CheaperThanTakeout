@@ -1,4 +1,5 @@
 # Banana Pudding
+NOTE: More protein can be added by using Fairlife Ultra-Filtered Milk.
 
 ## Nutrition (est)
 * Calories:
