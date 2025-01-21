@@ -2,8 +2,9 @@
 NOTE: More protein can be added by using Fairlife Ultra-Filtered Milk.
 
 ## Nutrition (est)
+* Servings: 8
 * Calories:
-* Protein
+* Protein:
 * Carbs:
 * Fat:
 
@@ -17,12 +18,16 @@ NOTE: More protein can be added by using Fairlife Ultra-Filtered Milk.
 
 ## Directions
 1. Place milk and pudding mix in a large bowl; beat with a whisk for 2 minutes. 
+
 2. Chill pudding in the fridge for 30 minutes.
+
 3. Remove pudding from fridge; fold in the Cool Whip topping.
+
 4. In a serving bowl, layer wafers, banana slices, and pudding mixture.
+
 5. Chill pudding in the fridge until ready to serve.
 
 ## Source
-Inspired by Strother, K. (2024, June 17). Banana Pudding. Allrecipes. https://www.allrecipes.com/recipe/22749/the-best-banana-pudding/ 
+[Banana Pudding - All Recipes](https://www.allrecipes.com/recipe/22749/the-best-banana-pudding/)
 
 
