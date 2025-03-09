@@ -1,0 +1,34 @@
+# Oven BBQ Chicken
+
+## Nutrition (est)
+* Servings:
+* Calories:
+* Protein:
+* Carbs:
+* Fat:
+* Fiber:
+
+## Ingredients
+* 4 - whole skin-on, bone-in chicken thighs
+* 1 - cup barbecue sauce
+* kosher salt and coarsely ground black pepper to taste
+
+## Directions
+1. Preheat the oven to 425 degrees F (220 degrees C). Line a baking pan with heavy-duty foil to make cleanup easier.
+
+2. Prepare chicken breasts by cutting off the rib meat if you wish and rinse and pat dry. Leave the skin on. Season chicken with salt and pepper and put in the pan.
+
+3. Chicken seasoned with salt and pepper.
+
+4. Bake in the preheated oven until juices start to appear, about 10 minutes. Reduce oven temperature to 375 degrees F (190 degrees C).
+
+5. Remove the pan and generously pour 1/2 of the barbecue sauce over chicken. Continue to bake for 20 minutes. Repeat with remaining barbecue sauce.
+
+6. One layer of barbecue sauce added to chicken.
+
+7. Second layer of barbecue sauce added to chicken.
+
+8. Cook until no longer pink in the centers and skin is crispy, 15 to 20 minutes more.
+
+## Source
+[BBQ Chicken Breasts](https://www.allrecipes.com/recipe/280052/bbq-chicken-breasts-in-the-oven/)

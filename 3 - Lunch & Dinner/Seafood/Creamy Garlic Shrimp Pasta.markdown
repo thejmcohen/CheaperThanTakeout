@@ -1,0 +1,46 @@
+# Creamy Garlic Shrimp Pasta
+
+## Nutrition (est)
+* Servings: 3
+* Calories:
+* Protein
+* Carbs:
+* Fat:
+* Fiber: 
+
+## Ingredients
+* 8 - oz pasta
+* 1 - tbsp olive oil
+* 1 1/2 - tbsp butter, divided
+* 1 - lb raw shrimp, buy frozen then thaw 
+* 1/2 - tsp salt
+* 1/4 - tsp ground black pepper
+* 1 - tbsp Old Bay seasoning – or smoked paprika or cajun, optional
+* 1 - clove garlic, minced
+* 1/2 - cup (120 ml) heavy cream (double cream in the UK)
+* 1/2 - cup (40 grams) parmesan grated
+* 1/4 - cup chopped fresh parsley chopped
+
+## Directions
+1. In a medium-sized saucepan, boil water and salt it. Add your pasta, and cook according to the package instructions until al dente. When the pasta is cooked, reserve 1 cup of the pasta water and drain the pasta.
+
+2. In a skillet over medium heat, melt 1 tablespoon of the butter, and add olive oil. Cook the shrimp for a minute, then season with salt, pepper, and Old Bay Seasoning or paprika if using.
+
+3. Continue to cook the shrimp until it’s pink. Do this in batches if you’re worried that you may overcook the shrimp. Remove the shrimp onto a plate and set aside.
+
+4. In the same pan, melt the remaining butter and add garlic, cook for 30 seconds or until it's fragrant. Add the heavy cream, and with the spatula deglaze the pan.
+
+5. Add parmesan, let it melt then loosen the sauce with reserved pasta water and allow to simmer for a minute. Taste the sauce and see if more salt and pepper is needed.
+
+6. Toss the pasta with the sauce until it’s well coated. Add the shrimp back in to reheat it gently, garnish with freshly chopped parsley and serve.
+
+## Notes
+
+* If you cook the shrimp from frozen, you will have liquid coming out and that’s fine as it will take about a minute to simmer it down (not enough to overcook the shrimp). If possible, thaw the shrimp before cooking.
+
+* Don’t forget to reserve about a cup of the pasta cooking water, it’s quite starchy and great for loosening up the sauce. You will most probably need much less than a cup, but to stay on the safe side I always reserve 1 cup and drain the rest.
+
+* Freezing not recommended
+
+## Source
+[Creamy Garlic Shrimp Pasta](https://littlesunnykitchen.com/garlic-shrimp-pasta/)
