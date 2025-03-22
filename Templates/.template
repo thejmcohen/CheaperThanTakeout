@@ -6,6 +6,7 @@
 * Protein:
 * Carbs:
 * Fat:
+* Fiber:
 
 ## Ingredients
 * 1 - cup sugar
@@ -25,5 +26,8 @@
 
 5. 
 
+## Notes
+* example
+
 ## Source
-{example}(https://github.com/adam-p/markdown-here/wiki/markdown-cheatsheet#links)
+[example](https://github.com/adam-p/markdown-here/wiki/markdown-cheatsheet#links)
